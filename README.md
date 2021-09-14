@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AtroCake i am super
+- 👋 Hi, I’m @AstroCake i am super
 - 👀 I’m interested in ... Cake
 - 🌱 I’m currently learning ... how to Make a cake
 - 💞️ I’m looking to collaborate on ... ANY
